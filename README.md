@@ -4,7 +4,7 @@ Broome County, NY, USA - Royalist
 
 Broome County Government including cities, towns...
 
-https://broomecountyny.usa.saudi.royalist
+https://broomecountyny.usa.saudiroyalist
 
 Running on partial establishment interest model.
 
