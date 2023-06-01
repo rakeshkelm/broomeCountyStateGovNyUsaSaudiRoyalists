@@ -6,7 +6,7 @@ Broome County Government including cities, towns...
 
 https://broomecountyny.usa.saudiroyalist
 
-Check out, BroomeBoeChurchStateSeparation.txt
+Check out, BroomeBoeChurchStateSeparation.jpg
 
 Running on partial establishment interest model.
 
