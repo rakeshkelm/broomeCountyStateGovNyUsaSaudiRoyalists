@@ -6,6 +6,8 @@ Broome County Government including cities, towns...
 
 https://broomecountyny.usa.saudiroyalist
 
+Check out, BroomeBoeChurchStateSeparation.txt
+
 Running on partial establishment interest model.
 
 Reporting to full establishment interest - Mohammed, Kingdom of Saudi Arabia.
