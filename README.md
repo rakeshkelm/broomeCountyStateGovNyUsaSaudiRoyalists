@@ -1,19 +1,26 @@
-# broomeGov
-
-Broome County, NY, USA - Saudi Royalist (Winning)
-
-Broome County Government including cities, towns...
-
-https://broomecountyny.usa.saudiroyalist
-
-Check out, BroomeBoeChurchStateSeparation.jpg
+Broome County and State Government, NY,  USA, Saudi Royalist (Winning)
 
 Running on partial establishment interest model.
 
 Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabia.
 
-Check out, files in this folder. (Actively updated)
+at htps://broomecountystatenygovusasaudiroyalists.media.militia
 
-Also, Check out
+then - Check Broome County and State Government, NY,  USA (aka Great-America)
 
-https://github.com/irakeshkelm (Actively updated)
+at https://github.com/rakeshkelm/broomecountystatenygovusasaudiroyalists
+
+then - Check out, BroomeBoeChurchStateSeparation.jpeg
+
+continue to
+
+Check out, Multiple files
+
+at https://github.com/rakeshkelm/broomecountystatenygovusasaudiroyalists
+
+then - Check out, multiple files in this folder.
+
+Build and operationalize a planet.
+
+Expand and update Independent interest.
+
