@@ -1,4 +1,4 @@
-Broome County and State Government, NY,  USA, Saudi Royalist (Winning)
+Broome County and State Government, NY,  USA (aka United slave america), Saudi Royalist (Winning)
 
 Running on partial establishment interest model.
 
@@ -6,7 +6,7 @@ Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabi
 
 at htps://broomecountystategovnyusasaudiroyalists.media.militia
 
-then - Check Broome County and State Government, NY,  USA (aka Great-America)
+then - Check Broome County and State Government, NY,  USA (aka United slave america)
 
 at https://github.com/rakeshkelm/broomecountystategovnyusasaudiroyalists
 
